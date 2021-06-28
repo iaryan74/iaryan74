@@ -2,7 +2,7 @@
 - 👀 I’m interested... in Technology including AI, Machine Learning, App Development
 - 🌱 I’m currently... in class 11th PCM Student.
 - 💞️ I’m looking to... collaborate on my startup that aims to help small businesses track inventory and manage stock to save time and money.
-- Ask me about ... Anything.
+- Ask me about ... anything related to tech
 - 📫 How to reach me?
 You can reach me through my mail- sudhanshuaryan7749@gmail.com or by instagram @iaryan74
 
